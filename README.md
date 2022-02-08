@@ -1,1 +1,0 @@
-# kbalisnomo.github.io
